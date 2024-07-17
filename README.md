@@ -1,1 +1,0 @@
-# technocovai1
